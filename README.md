@@ -1,0 +1,1 @@
+# Analise_Indice_brasileiro_conectividade
